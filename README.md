@@ -1,3 +1,3 @@
 - Hi, I’m @samueldhuston97
 - Check out samuel-huston.com
-- Reach me @ samuelhuston@outlook.com or design@samuel-huston.com
+- Reach me @ designs samuel-huston.com
